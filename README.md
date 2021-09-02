@@ -1,1 +1,2 @@
-# Intro
+I am a graduating student with a course, Bachelor of Science in Computer Science and in fact I am a dean's lister who is seeking a position in a competitive environment that will challenge me to push my limits and broaden my knowledge in the field of computer science while also allowing me to contribute to the company's dynamics. 
+Furthermore, I am widening my knowledge about Web Development to boost my confidence in the field that I am applying for. I am hardworking and determined person that's why I am willing to be train and learn from the company to the best that I can.
